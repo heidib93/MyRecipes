@@ -7,7 +7,7 @@ Easy waldorf salad that can be made vegetarian in a jiffy!
 2 apples, cored and chopped
 1 cup seedless grapes, sliced in half
 1 cup celery, thinly sliced
-1/4 cup walnuts, chopped
+1/4 cup pecans, chopped
 Lettuce, optional for serving
 1 Tablespoon lemon juice
 Salt and pepper, to taste
